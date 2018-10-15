@@ -1,0 +1,2 @@
+# python06
+lakfasafhkashfkasgfuagiu
